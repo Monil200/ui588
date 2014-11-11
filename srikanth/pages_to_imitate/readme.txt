@@ -1,0 +1,1 @@
+The contact page is pretty lame. I will give you the contact page that you are supposed to imitate.
